@@ -33,3 +33,4 @@ Read and journal every single day
 Get sun everyday
 Eat good foods
 Spend time with good people
+Nobody has it all figured out
