@@ -34,3 +34,4 @@ Get sun everyday
 Eat good foods
 Spend time with good people
 Nobody has it all figured out
+Stop trying to impress people
