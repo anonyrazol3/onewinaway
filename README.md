@@ -9,3 +9,4 @@ learn sales
 learn marketing
 Make sure you are 1% better than yesterday
 Do the work you have been avoiding
+Dont take advice from people who arent where you wanna be
