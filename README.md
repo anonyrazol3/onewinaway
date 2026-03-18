@@ -16,3 +16,4 @@ Delete video games
 Stop sleeping past 11 pm
 Stop waking up past 9 am
 Walk at least 10k steps/day
+Go to the gym five times a week
