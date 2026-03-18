@@ -40,3 +40,4 @@ Stop trying to control everything just let go
 Stop feeling like you are behind
 Stop doomscrolling
 Stop thinking about what could have been
+Dont regret anything!
