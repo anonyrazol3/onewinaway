@@ -14,3 +14,4 @@ Dont finance anything you cant afford in cash
 Cut out seed oils
 Delete video games
 Stop sleeping past 11 pm
+Stop waking up past 9 am
