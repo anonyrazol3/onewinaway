@@ -13,3 +13,4 @@ Dont take advice from people who arent where you wanna be
 Dont finance anything you cant afford in cash
 Cut out seed oils
 Delete video games
+Stop sleeping past 11 pm
