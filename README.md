@@ -20,3 +20,4 @@ Go to the gym five times a week
 Keep your phone far away from you
 Study successful people
 Read atleast 20 pages a day
+DELAY GRATIFICATION!!!
