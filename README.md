@@ -37,3 +37,4 @@ Nobody has it all figured out
 Stop trying to impress people
 If you are looking forward to weekends, that's not living
 Stop trying to control everything just let go
+Stop feeling like you are behind
