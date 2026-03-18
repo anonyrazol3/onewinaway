@@ -24,3 +24,4 @@ DELAY GRATIFICATION!!!
 Invest in yourself
 Stop talking about your goals
 Stop overthinking
+Stop putting peoples on pedestals
