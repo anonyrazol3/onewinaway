@@ -6,3 +6,4 @@ Do the hardest task of the day first
 Create more than you consume
 Eat only natural whole food
 learn sales
+learn marketing
