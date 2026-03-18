@@ -28,3 +28,4 @@ Stop putting peoples on pedestals
 Stop thinking your goal is out of reach
 Have faith in God's plan
 If they dont have the life that you want, dont take advice from them
+Stop trusting others more than yourself
