@@ -25,3 +25,4 @@ Invest in yourself
 Stop talking about your goals
 Stop overthinking
 Stop putting peoples on pedestals
+Stop thinking your goal is out of reach
