@@ -30,3 +30,4 @@ Have faith in God's plan
 If they dont have the life that you want, dont take advice from them
 Stop trusting others more than yourself
 Read and journal every single day
+Get sun everyday
