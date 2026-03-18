@@ -11,3 +11,4 @@ Make sure you are 1% better than yesterday
 Do the work you have been avoiding
 Dont take advice from people who arent where you wanna be
 Dont finance anything you cant afford in cash
+Cut out seed oils
