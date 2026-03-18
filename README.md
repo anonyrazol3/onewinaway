@@ -22,3 +22,4 @@ Study successful people
 Read atleast 20 pages a day
 DELAY GRATIFICATION!!!
 Invest in yourself
+Stop talking about your goals
