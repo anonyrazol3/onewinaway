@@ -32,3 +32,4 @@ Stop trusting others more than yourself
 Read and journal every single day
 Get sun everyday
 Eat good foods
+Spend time with good people
